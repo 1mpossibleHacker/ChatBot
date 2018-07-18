@@ -1,1 +1,1 @@
-ChatBot - English(Build 0.2 Is Coming)
+ChatBot - English(Build 0.2)Is Coming Tomorrow!
